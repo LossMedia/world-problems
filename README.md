@@ -1,0 +1,231 @@
+La guerre
+Eau payante
+Nourriture payante
+Vivre est payante
+Argent = pouvoir
+Pouvoir = contrôle sur la vie des gens
+
+Normalisation de la haine
+Normalisation du racisme
+Normalisation de la moquerie
+Normalisation de la pédophilie
+Normalisation des insultes
+Normalisation de la drogue
+Normalisation de la mort
+Normalisation de la tromperie
+Normalisation des mineurs drogués
+Normalisation des bagarres
+Normalisation des sans-abris
+Normalisation de la sexualisation
+Normalisation de l'hypersexualisation
+Normalisation du séchage de cours
+Plus de respect envers les adultes
+
+Normalisation de la violence
+Normalisation des mensonges politiques
+Normalisation de la corruption
+Normalisation de la surveillance de masse
+Normalisation de la manipulation médiatique
+Normalisation du harcèlement scolaire
+Normalisation du cyberharcèlement
+Normalisation des fake news
+Normalisation de l’addiction aux écrans
+Normalisation de l’isolement social
+Normalisation de la solitude
+Normalisation de la dépression ignorée
+Normalisation du burn-out
+Normalisation de l’exploitation au travail
+Normalisation des inégalités
+Normalisation de la précarité
+Normalisation de la censure
+Normalisation de la désinformation
+Normalisation de la peur constante
+Normalisation de la compétition extrême
+Normalisation de la pression sociale
+Normalisation du culte de l’apparence
+Normalisation de la comparaison permanente
+Normalisation de la superficialité
+Normalisation de la dépendance aux likes
+Normalisation de la vie mise en scène
+Normalisation du manque d’empathie
+Normalisation du mépris
+Normalisation du chacun pour soi
+Normalisation de la destruction de la planète
+Normalisation du gaspillage
+Normalisation du bruit constant
+Normalisation de l’instantanéité
+Normalisation de l’impatience
+Normalisation de la perte de sens
+Normalisation du travail sans passion
+Normalisation du stress permanent
+Normalisation de la banalisation du mal
+Normalisation de l’indifférence
+Normalisation de la manipulation émotionnelle
+Normalisation du clivage social
+Normalisation des extrêmes
+Normalisation du rejet de l’autre
+Normalisation du jugement rapide
+Normalisation de l’humiliation publique
+Normalisation de la dépendance économique
+Normalisation de l’endettement
+Normalisation de la marchandisation du corps
+Normalisation de la marchandisation de l’attention
+Normalisation de la perte de vie privée
+Normalisation de la fatigue mentale
+Normalisation de la déshumanisation
+Normalisation du cynisme
+Normalisation de l’absurde
+Plus de respect envers les adultes
+
+Contrôle par la peur
+Contrôle par l’argent
+Contrôle par l’information
+Contrôle par la dette
+Diviser pour mieux régner
+Travailler pour survivre
+Survivre au lieu de vivre
+Course à la performance
+Pression constante
+Toujours plus, jamais assez
+Consommation permanente
+Remplacer au lieu de réparer
+Être productif = être utile
+Être utile = avoir de la valeur
+Valeur = argent
+
+Information manipulée
+Vérité déformée
+Opinion transformée en fait
+Buzz > vérité
+Image > réalité
+Apparence > profondeur
+Quantité > qualité
+Rapidité > réflexion
+
+Comparaison constante
+Compétition permanente
+Échec mal vu
+Réussite enviée
+Individualisme croissant
+Communauté affaiblie
+Familles divisées
+Amitiés superficielles
+
+Travail sans sens
+Études sans passion
+Diplôme = sécurité
+Sécurité = illusion
+Liberté conditionnée
+Liberté limitée
+Rêves rentabilisés
+Créativité monétisée
+
+Émotions exploitées
+Colère entretenue
+Peurs amplifiées
+Scandales recyclés
+Indignation éphémère
+Oubli rapide
+
+Temps vendu
+Attention capturée
+Données collectées
+Vie privée exposée
+Identité numérique
+Persona fabriquée
+
+Fatigue généralisée
+Stress normalisé
+Anxiété banalisée
+Solitude moderne
+Isolement social
+Hyperconnexion
+
+Planète exploitée
+Ressources épuisées
+Nature sacrifiée
+Climat ignoré
+Responsabilité diluée
+
+Silence face à l’injustice
+Habitude du chaos
+Tolérance à l’absurde
+Acceptation du pire
+Résignation collective
+Résignation collective
+Perte d’espoir
+Perte de repères
+Perte de valeurs
+Perte de sens
+
+Obéir sans comprendre
+Suivre sans réfléchir
+Consommer sans besoin
+Parler sans écouter
+Réagir sans analyser
+
+Peurs héritées
+Colères transmises
+Traumatismes ignorés
+Silences imposés
+Vérités cachées
+
+Systèmes intouchables
+Pouvoirs invisibles
+Décisions lointaines
+Conséquences locales
+Responsabilités floues
+
+Promesses répétées
+Changements repoussés
+Crises en série
+Urgences permanentes
+Solutions temporaires
+
+Éducation formatée
+Esprits conditionnés
+Talents standardisés
+Différences critiquées
+Originalité marginalisée
+
+Succès mesuré en chiffres
+Bonheur mesuré en biens
+Relations mesurées en avantages
+Temps mesuré en productivité
+Humain mesuré en performance
+
+Réalité filtrée
+Souvenirs numérisés
+Présence fragmentée
+Attention divisée
+Moments écourtés
+
+Confiance brisée
+Dialogue rompu
+Écoute absente
+Débat polarisé
+Nuance oubliée
+
+Rêves abandonnés
+Passions étouffées
+Enfants pressés
+Adultes épuisés
+Anciens ignorés
+
+Peu d’exemples inspirants
+Beaucoup d’influenceurs
+Beaucoup de bruit
+Peu de silence
+Peu de recul
+
+Société pressée
+Société stressée
+Société divisée
+Société saturée
+Société distraite
+
+Recherche de sens
+Recherche d’identité
+Recherche de reconnaissance
+Recherche d’appartenance
+Recherche de liberté
